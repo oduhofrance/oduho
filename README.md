@@ -15,7 +15,7 @@ You can click the Preview link to take a look at your changes.
 
 ## Embrace Your Cycle with Confidence and Style!
 
-At **Oduho France**, we believe that managing your menstrual cycle should be as comfortable and stylish as every other aspect of your life. That's why we've dedicated ourselves to creating a line of **innovative menstrual health solutions** that are not only effective but also sustainable and chic.
+At **[Oduho](https://www.oduho.com)**, we believe that managing your menstrual cycle should be as comfortable and stylish as every other aspect of your life. That's why we've dedicated ourselves to creating a line of **innovative menstrual health solutions** that are not only effective but also sustainable and chic.
 
 ### Why Choose Oduho France? 🌿
 
@@ -39,10 +39,5 @@ Want to learn more or collaborate with us? Reach out and let's start a conversat
 - [Buy Me A Coffee](https://www.buymeacoffee.com/oduho)
 - [Tumblr](https://www.tumblr.com/oduho)
 - [Merdium](https://medium.com/@oduho)
-
-
-### Fun Fact ⚡
-
-Did you know that the average person uses over 11,000 disposable menstrual products in a lifetime? With Oduho, you can drastically reduce that number and contribute to a greener planet!
 
 
