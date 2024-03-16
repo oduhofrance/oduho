@@ -34,11 +34,11 @@ We're more than a brand; we're a community. By choosing Oduho, you're joining a 
 
 Want to learn more or collaborate with us? Reach out and let's start a conversation that matters.
 
-[About Me](https://www.about.me/oduho)
-[Post.News](https://post.news/@/oduhofrance)
-[Buy Me A Coffee](https://www.buymeacoffee.com/oduho)
-[Tumblr]([https://www.oduho.com](https://www.tumblr.com/oduho)
-[Merdium]([https://www.oduho.com](https://medium.com/@oduho)
+- [About Me](https://www.about.me/oduho)
+- [Post.News](https://post.news/@/oduhofrance)
+- [Buy Me A Coffee](https://www.buymeacoffee.com/oduho)
+- [Tumblr](https://www.tumblr.com/oduho)
+- [Merdium](https://medium.com/@oduho)
 
 
 ### Fun Fact ⚡
