@@ -1,10 +1,10 @@
-👋 Hi, I’m @oduhofrance
-👀 I’m interested in innovative menstrual health solutions and sustainable products.
-🌱 I’m currently learning about the latest advancements in eco-friendly materials.
-💞️ I’m looking to collaborate on projects that aim to improve menstrual health education and accessibility.
-📫 How to reach me: You can reach out to me via email at contact@oduho.com or follow me on social media for updates.
-😄 Pronouns: She/Her
-⚡ Fun fact: Did you know that the average person uses over 11,000 disposable menstrual products in a lifetime? That's why we're passionate about sustainable alternatives!
+- 👋 Hi, I’m @oduhofrance
+- 👀 I’m interested in innovative menstrual health solutions and sustainable products.
+- 🌱 I’m currently learning about the latest advancements in eco-friendly materials.
+- 💞️ I’m looking to collaborate on projects that aim to improve menstrual health education and accessibility.
+- 📫 How to reach me: You can reach out to me via our social media for updates.
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: Did you know that the average person uses over 11,000 disposable menstrual products in a lifetime? That's why we're passionate about sustainable alternatives!
 
 <!---
 oduhofrance/oduhofrance is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
